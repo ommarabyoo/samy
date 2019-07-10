@@ -1,2 +1,0 @@
-# samy
-The Pyramids
